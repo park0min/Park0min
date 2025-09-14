@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi i'm youngmin,my student number is 202534809  thank you
 
 <!--
 **park0min/Park0min** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
